@@ -1,0 +1,2 @@
+# Lear-Siegler-COSMIC-INTRUDERS-
+Lear Siegler ADM 31 COSMIC INTRUDERS Motorola 6800
